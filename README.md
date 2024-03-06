@@ -16,3 +16,6 @@
 Lucas Melo\
 "Só sei que nada sei." - Socrates\
 "Eu cavo, tu cavas, ele cava, nós cavamos, vós cavais, eles cavam… não é bonito, mas é profundo." - Anônimo
+
+Guilherme Vieira\
+" Buy the top, sell the bottom." - Einstein 
