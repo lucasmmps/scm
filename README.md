@@ -10,3 +10,9 @@
 - Convide um colaborador
 
 ### Alunos: Guilherme Vieira, Lucas Melo
+
+### Frases
+
+Lucas Melo\
+"Só sei que nada sei." - Socrates\
+"Eu cavo, tu cavas, ele cava, nós cavamos, vós cavais, eles cavam… não é bonito, mas é profundo." - Anônimo
